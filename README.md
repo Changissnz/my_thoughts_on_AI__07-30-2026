@@ -62,7 +62,7 @@ by Anthropic's systems completely went over my head. Looking back, I was actuall
 during that time. So yes... people such as me definitely cannot go up against A.I. brains that easily. One v One is definitely no 
 longer something feasible, ever since Google's AlphaGo system. 
 
-**CORRECTION: actually, it was the Jacobian conjecture that Anthropic's Claude disproved. My bad. I'm so sorry for putting out the 
+**CORRECTION: Actually, it was the Jacobian conjecture that Anthropic's Claude disproved. My bad. I'm so sorry for putting out the 
 claim that Claude disproved Fermat's Last Theorem.**
 
 The goalpost will just keep on moving further and further along. Some people will find time to play a little in these developments. 
