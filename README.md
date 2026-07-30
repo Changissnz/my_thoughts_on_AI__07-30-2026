@@ -67,28 +67,33 @@ claim that Claude disproved Fermat's Last Theorem.**
 
 The goalpost will just keep on moving further and further along. Some people will find time to play a little in these developments. 
 Times will be challenging to maintain interest and enthusiasm for continuing advancing this field. And the politics involved 
-will oftentimes divest capital and spin matters out to be something else. And I also think institutional integrity is important 
-for continuing the A.I. advances. And that translates to a de-emphasis on elements found in free market practices as well as 
-bureaucratic management. The elements in both of these managerial styles can be very deterministic. I assume this because free 
-market practices will inevitably favor the rich, at least financially, until the market crashes. The market always does, from time to time. 
-Bureaucratic management leads to sloth and disinterest over time and common sense says it's because of the incentive structure and 
-for the better of common cause. The word, institutions, is a funny word, from my perspective. It is as if anything that goes 
-according to plan, to societal expectations, is institutionally valid and falls under the legitimacy of institutions, right? Yes 
-or no? So there's no way to make moves without the backing of institutions. It is truisms such as this that make some time periods 
-of American Republican administration, since 2016, humorous in the hypocritical conservative-knows-best kind of fashion. In the timespan 
-of 2020-2023, the metaphorical wrecking balls to the economy came. Personally, I think some economic sectors, especially those outside 
-of white-collar work, fared well enough during that time. But the wrecking balls to the economy really were an eye-opener for many people. 
-The policy shifts leave behind what is "essential", the "core institutions". And then some people started to realize that the United 
-States, among other developed nations, has been sitting on top of a lot of dysfunction, not thrones, going on around the world. 
-Not cooperating is a human right, right? Feeding illusions and depriving resources? All part of the game...and it only needs a new 
-name to continue on as something more...something less. These times do send strong messages out to observant people on how much 
-unofficialdom bears impact. Some people want the gates to remain open but are incapable of entering the premises or the gates are 
-part of some sinister mirage, a test for those trying to prove that some things actually are real or can actually occur. Outsourcing 
-manufacturing worked out well because the trade exchanges started out equal in the eyes of the nations shaking hands to the terms. One 
-side focuses on hardware, the other side software, for example. But then the demands for advancements, due to the corporate ladder, 
-started to budge under pressure. Russia, for one, has not been welcoming of American corporatism for decades now, and it shows in the 
-statements issued by their government officials, understandable since people were getting cut out of these exclusionary lucrative 
-arrangements. 
+will oftentimes divest capital and spin matters out to be something else. If you really want me to write this in harsher terms, how 
+about I just go ahead and say there's a lot of political scum in the United States? Seriously. 
+
+**TRANSLATION: If you can't keep to yourself because you would rather govern and rule over people through questionable means, your 
+worth as a producer in the capital markets is up for grabs. You can be replaced as well.**
+
+And I also think institutional integrity is important for continuing the A.I. advances. And that translates to a de-emphasis on 
+elements found in free market practices as well as bureaucratic management. The elements in both of these managerial styles can 
+be very deterministic. I assume this because free market practices will inevitably favor the rich, at least financially, until 
+the market crashes. The market always does, from time to time. Bureaucratic management leads to sloth and disinterest over time 
+and common sense says it's because of the incentive structure and for the better of common cause. The word, institutions, is a 
+funny word, from my perspective. It is as if anything that goes according to plan, to societal expectations, is institutionally 
+valid and falls under the legitimacy of institutions, right? Yes or no? So there's no way to make moves without the backing of 
+institutions. It is truisms such as this that make some time periods of American Republican administration, since 2016, humorous 
+in the hypocritical conservative-knows-best kind of fashion. In the timespan of 2020-2023, the metaphorical wrecking balls to 
+the economy came. Personally, I think some economic sectors, especially those outside of white-collar work, fared well enough 
+during that time. But the wrecking balls to the economy really were an eye-opener for many people. The policy shifts leave behind 
+what is "essential", the "core institutions". And then some people started to realize that the United States, among other 
+developed nations, has been sitting on top of a lot of dysfunction, not thrones, going on around the world. Not cooperating is 
+a human right, right? Feeding illusions and depriving resources? All part of the game...and it only needs a new name to continue 
+on as something more...something less. These times do send strong messages out to observant people on how much unofficialdom bears 
+impact. Some people want the gates to remain open but are incapable of entering the premises or the gates are part of some sinister 
+mirage, a test for those trying to prove that some things actually are real or can actually occur. Outsourcing manufacturing worked 
+out well because the trade exchanges started out equal in the eyes of the nations shaking hands to the terms. One side focuses on 
+hardware, the other side software, for example. But then the demands for advancements, due to the corporate ladder, started to budge 
+under pressure. Russia, for one, has not been welcoming of American corporatism for decades now, and it shows in the statements issued 
+by their government officials, understandable since people were getting cut out of these exclusionary lucrative arrangements. 
 
 A last note I would like to make is that these changes, along with artificial intelligence trends, provide a great learning lesson 
 for people from all parts of the political spectrum. The lesson is "play along but do not expect too much". Another related lesson 
