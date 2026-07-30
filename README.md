@@ -22,7 +22,7 @@ as "intelligentsia" in that discussion surrounding artificial intelligence becau
 to the industry. Cultural expectations, as I tried to elucidate in that article, are strange in that they are 
 conservative at "source", or at "poverty" perhaps is the better choice of word, and become represented as such 
 incredulity and questionable strength through the course of deviation by aspiration. I mentioned works such as 
-"Scarface" and writers such as Mario Puzo in not-so-commending ways because I was trying to get at the point 
+"Scarface" and the works of writers such as Mario Puzo in not-so-commending ways, because I was trying to get at the point 
 that the anti-ideal is actually just as hard to achieve as the ideal, in metaphysical terms. I felt it important 
 to express those things because it lets me say what I think the zeros and anti-zeros are, what with inflationary 
 measures and financial engineering surrounding artificial intelligence, which I mentioned somewhere in my previous 
