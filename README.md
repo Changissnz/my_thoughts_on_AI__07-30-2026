@@ -17,7 +17,7 @@ I shared my opinion on the shadowy power of financial speculation, namely the ch
 "revelation" that there is no artificial intelligence bubble, which then is a statement that growing economic problems 
 of disparities and inequalities are NOT because of developments in artificial intelligence. I guess the man might be 
 right, but he issues his statements out of the bottom of his financial interests (Korea, Manchuria, and Japan I presume), 
-not because he is the wisest and error-free financier ever in the Eastern hemisphere. I also used words such 
+not because he is the most wise and error-free financier ever in the Eastern hemisphere. I also used words such 
 as "intelligentsia" in that discussion surrounding artificial intelligence because that word is very complementary 
 to the industry. Cultural expectations, as I tried to elucidate in that article, are strange in that they are 
 conservative at "source", or at "poverty" perhaps is the better choice of word, and become represented as such 
